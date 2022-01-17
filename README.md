@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @uzi-dar
+- 👀 I’m interested in WEB DEVELOPMENT  
+- 🌱 I’m currently learning EVERYTHING
+- 💞️ I’m looking FOR HELP
+- 📫 How to reach me ...ogmajor3@gmail.com
